@@ -8,6 +8,33 @@
 ![appİmages-3](https://user-images.githubusercontent.com/90987920/202919791-304db974-c087-4289-b2de-7f0488c2d23e.PNG)
 ![appİmages-4](https://user-images.githubusercontent.com/90987920/202919793-b84afe23-b902-4974-8378-f7c88fbb23ee.PNG)
 
+(https://github.com/xaliiakkus)
 
-Ali Akkuş 
-[ayseali](https://github.com/xaliiakkus)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
